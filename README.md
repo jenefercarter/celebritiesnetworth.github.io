@@ -1,1 +1,1 @@
-# celebritiesnetworth.github.io
+# Celebrities Networth
